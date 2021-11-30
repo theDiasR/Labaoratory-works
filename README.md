@@ -1,1 +1,1 @@
-# Labaoratory-works
+# Laboratory-works
